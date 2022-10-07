@@ -1,1 +1,1 @@
-My second good readme
+I am YET to be a FULL SOFTWARE ENGINEER 
